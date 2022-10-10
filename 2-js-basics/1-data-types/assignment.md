@@ -18,5 +18,4 @@ Ram Memory Installed Size	4 GB
 Operating System	Windows 10 Home
 Card Description	Integrated
 CPU Speed	2.55 GHz|
-The six data types are listed and explored in detail, documenting their use 
-Samsung Galaxy Book Go Laptop PC Computer Qualcomm 7C Pro 4GB Memory 128GB eUFS Storage 18-Hour Battery Compact Light Shockproof WFH Ready WiFi 5, Silver (Renewed)|Four datatypes are explored|Two data types are explored|
+|Samsung Galaxy Book Go Laptop PC Computer Qualcomm 7C Pro 4GB Memory 128GB eUFS Storage 18-Hour Battery Compact Light Shockproof WFH Ready WiFi 5, Silver (Renewed)|Four datatypes are explored|Two data types are explored|
